@@ -1,4 +1,4 @@
-#  
+#  exclusive Script for jump to steal lucky blocks is the best jump to steal lucky blocks Script, featuring auto-collect and god mode. Safe and powerful
 
 
 
